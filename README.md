@@ -3,4 +3,4 @@
 - fã de anime🪄
 - fã de filmes🧙
 - amo gatos😸
-- ![(https://tenor.com/pt-BR/view/cat-gif-6997856904020830598)]
+- ![(<div class="tenor-gif-embed" data-postid="6997856904020830598" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/cat-gif-6997856904020830598">Cat GIF</a>from <a href="https://tenor.com/search/cat-gifs">Cat GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)]
